@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @TerraceStomp
+- 👀 I’m interested in pushing things that don't want to be pushed on @cameronos's account
+- 📫 To message me, go to @cameronos and read the long paragraphs I've left
